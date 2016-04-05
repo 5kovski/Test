@@ -1,1 +1,2 @@
-Promena
+Ova e od pomoshen2
+
